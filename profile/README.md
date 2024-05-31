@@ -30,4 +30,4 @@ Why **Silyze** is trusted by both startups and established businesses that have 
 * **Figma:** Collaborate on design mockups and final products with client.
  
 
-**Let's talk!**
+**[Let's talk!](https://calendly.com/simeon-qktf/silyze-meeting)**
